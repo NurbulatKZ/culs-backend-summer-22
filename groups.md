@@ -1,2 +1,2 @@
 Please add your group here:
-Nurbulat , Mahsa , Farrukh 
+Nurbulat Shektbayev, Mahsa , Farrukh 
